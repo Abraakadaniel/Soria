@@ -1,2 +1,4 @@
 # Soria
-Soria (placeholder name) IS a concept for an MMORPG that I have held close to my heart and mind for years that in theory would be unlimited in possibility, and avoid being stale like the Major competitors in this game scene.
+Soria (placeholder name) IS a concept for an MMORPG that I have held close to my heart and mind for years that in theory would be unlimited in possibility, and avoid being stale like the Major competitors in this game scene. I have many ideas that would I think revolutionize this genre and many ways and revitalize the scene as well.
+ACTION COMBAT - Gone are the days that would have many players sleeping in their chairs because of TAB target playstyl, or because of pseudo hack n slash just use your abilities whenever combat. The combat of Soria would be fast paced action combat based on skill, but still dependant on gear as well. We don't want that archeage feeling though, to see people getting killed in just a few blows from someone one level higher than you. I have many ideas for the combat system.
+STORY - The story in Soria Would be what really seperated this game from other mmorpg games.
